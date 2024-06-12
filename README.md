@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @quantumscript1
+- 👀 I’m interested in Coding, Biology, Genetics, and Chemistry.
+- 🌱 I’m currently learning Coding, Biology, Genetics, and Chemistry.
+- 💞️ I’m looking to collaborate on ...Error...
+- 📫 How to reach me contact me on phone 225-220-6273.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: You're awsome.
