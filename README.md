@@ -2,6 +2,6 @@
 - 👀 I’m interested in Coding, Biology, Genetics, and Chemistry.
 - 🌱 I’m currently learning Coding, Biology, Genetics, and Chemistry.
 - 💞️ I’m looking to collaborate on ...Error...
-- 📫 How to reach me contact me on phone at (225-220-6273).
+- 📫 How to reach me contact me on phone at ...Error....
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: You're awsome.
